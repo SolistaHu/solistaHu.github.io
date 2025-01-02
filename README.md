@@ -1,1 +1,1 @@
-# solistaHu.github.io
+# solistahu.github.io
